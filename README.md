@@ -2,7 +2,7 @@
 
 -( .づ◡﹏◡ )づ. I’m interested in creating Games and Informational Apps
 
--( つ﹏⊂ ) I’m currently learning High School Education
+-( つ﹏⊂ ) I’m currently learning Javascript and Python
 
 - ⊂◉‿◉つ I’m looking to collaborate on NOTHING ATM!!!
 
